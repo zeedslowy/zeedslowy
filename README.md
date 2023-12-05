@@ -1,8 +1,3 @@
-[<img src="https://github.com/AnonymousX1025/AnonymousX1025/blob/master/resources/hr.gif"/>](https://github.com/AnonymousX1025)
-
-<h1> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs Zeedy </h1>
-
-</p>
 
 [<img src="https://raw.githubusercontent.com/AnonymousX1025/AnonymousX1025/master/resources/hr.gif"/>](https://github.com/AnonymousX1025)
 
