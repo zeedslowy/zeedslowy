@@ -1,8 +1,14 @@
-<h1> ɢɪᴛʜᴜʙ ᴀɴᴀʟʏᴛɪᴄs </h1>
+<h1> 𝖹𝖾𝖾𝖽 𝖠𝗉𝗉 𝖲𝗍𝗈𝗋𝖾 🧭 </h1>
 
-[<img src="https://github-readme-stats.vercel.app/api?username=AnonymousX1025&count_private=true&show_icons=true&theme=chartreuse-dark&custom_title=What%27s+the+craic?&include_all_commits=true&hide_border=true&bg_color=000000" width="49%">](https://github.com/AnonymousX1025)  [<img src="https://github-readme-streak-stats.herokuapp.com/?user=AnonymousX1025&theme=chartreuse-dark&hide_border=True&bg_color=000000" width="49%">](https://github.com/AnonymousX1025)
+<p align="center"><a href="</h2>
 
-[<img src="https://github.com/AnonymousX1025/AnonymousX1025/blob/master/resources/hr.gif"/>](https://github.com/AnonymousX1025)
+<p align="center">
+  <img src="https://resmim.net/cdn/2023/04/26/SDsNOZ.gif">
+</p>
+
+<h1> 𝖦𝗂𝗍𝗁𝗎𝖻 𝖲𝗍𝖺𝗍𝗎𝗌 💎 </h1>
+
+ ![Lizy Angel ❤️'s's GitHub stats](https://github-readme-stats.vercel.app/api?username=zeedslowy&show_icons=true&theme=synthwave) &nbsp;
 
  ᴄᴏɴᴛᴀᴄᴛ ᴍᴇ </h1>
 
